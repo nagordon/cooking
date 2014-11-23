@@ -1,6 +1,20 @@
-# cooking food recipes #
+# cooking food recipes
 
-## Sausage Gravy and Biscuits ##
+## Sausage Gravy and Biscuits
+### Gravy
+1. Brown 1 lb of sausage ( I like chorizo!)
+2. Remove sausage and add 2 tablespoons of butter, a dash of sunflower oil and stir
+4. Slowly add 1/4 cup of flour and brown the flour to make a roux
+5. Slowly add 2-3 cups of whole milk and then add sausage
+7. Salt and pepper to taste
+
+### Biscuits
+1. 2 cups flour
+2. 1 tablespoon of baking powder
+3. 1 teaspoon sugar or honey
+4. 1 teaspoon of fine salt
+5. 3/4 cup whole milk
+6. 6 tablespoons of cold butter
 
 ## General Tsaos Chicken ##
 1. Coat the chicken pieces with 1/4 cup of cornstarch; set aside.

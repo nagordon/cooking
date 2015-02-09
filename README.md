@@ -36,3 +36,16 @@
 4. Turn dough out onto a lightly floured surface and pat or roll into a round. Transfer crust to a lightly greased 5. pizza pan or baker's peel dusted with cornmeal. Spread with desired toppings and bake in preheated oven for 15 to 20 minutes, or until golden brown. Let baked pizza cool for 5 minutes before serving.
 
 
+## Oven Roasted Potato Wedges
+### Keri's Recipe
+Potatoes slice into wedges and dried
+Dried mix is a little flour dried parmesean cheese and bread crumbs
+Coat Potatoes in butter and then roll in dried mix
+Bake 425+ till golden brown
+
+### Linda's Recipe
+cup of powerdered parm + 1/2 cup flour + salt and pepper
+wet potato
+cover potato in dry mix
+Put potatoes in a lot of olive oil on cookie sheet
+Bake 425+ till golden brown

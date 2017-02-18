@@ -23,12 +23,12 @@
 4. Reduce the heat to medium-high and stir in the sesame oil, ginger, and green onion. Cook and stir until the onion is limp and the ginger begins to brown, about 1 minute. Pour in the water, vinegar, and sugar; bring to a boil. Dissolve the cornstarch in the soy sauce and add to the simmering vinegar along with the oyster sauce and ketchup. Stir until the sauce has thickened and is no longer cloudy. Stir in the chicken and simmer until hot.
 
 ## Pizza Crust ##
-1 (.25 ounce) package active dry yeast
-1 teaspoon white sugar
-1 cup warm water (110 degrees F/45 degrees C)
-2 1/2 cups bread flour
-2 tablespoons olive oil
-1 teaspoon salt
+* 1 (.25 ounce) package active dry yeast
+* 1 teaspoon white sugar
+* 1 cup warm water (110 degrees F/45 degrees C)
+* 2 1/2 cups bread flour
+* 2 tablespoons olive oil
+* 1 teaspoon salt
 
 1. 450 degrees F (230 degrees C) Oven
 2. medium bowl, dissolve yeast and sugar in warm water. Let stand until creamy, about 10 minutes.
